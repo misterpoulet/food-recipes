@@ -28,4 +28,4 @@ optional: 1 cup chopped walnuts, pecans, or chocolate chips
 
 ------------------------------
 
-Bake in the oven at 350 degrees for 45 minutes.
+Bake in the oven at 350F degrees for 45 minutes.
